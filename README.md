@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Andrei
-- 📫 For collaborations you can contact me on email: ```andrei5090@gmail.com```
+- 📫 For collaborations you can contact me at: ```andrei5090@gmail.com```
